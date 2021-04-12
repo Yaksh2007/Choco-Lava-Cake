@@ -1,0 +1,3 @@
+Today, we’re making straight up chocolate lava cakes– though my peanut butter chocolate lava cakes are truly magical as well. I’ve gotten many requests for a plain chocolate version and I decided to finally make them because (1) chocolate molten lava and (2) chocolate molten lava. I love that these chocolate lava cakes are single serving just like my chocolate cupcakes— and that they’re even more rich and chocolatey than my chocolate cake recipe. If you enjoy this recipe but are looking for a gluten free option, try my flourless chocolate cake.
+
+The secret for making chocolate lava cakes is… there’s no secret at all! You’ll be delightfully surprised at how easy these really are to make.
