@@ -1,0 +1,1 @@
+Hot Chocolate transformed into Lava Cakes with melted gooey marshmallow baked into the centre. They are usually prepared with five main ingredients: chocolate, butter, flour, eggs and sugar. FIRST, the chocolate and butter are melted together on the stove before the rest of the ingredients are whisked in.
